@@ -571,6 +571,7 @@ https://isgp-studies.com/ufo-2000-05-21-boston-globe-ufo-theorists-gain-support-
 
 - NRO document sent by Dr. Steve Greer to Admiral Wilson:<br>
 https://siriusdisclosure.com/wp-content/uploads/2012/12/NRO-Doc.pdf
+John Greenwald [denies the validity](https://twitter.com/blackvaultcom/status/1434160902199123968) of this document.
 
 - "Letter – Commander Will Miller To Admiral Tom Wilson – June 28th, 1995":<br>
 https://www.ufojoe.net/miller-to-wilson-letter-1995/

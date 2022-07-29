@@ -214,10 +214,12 @@ https://www.youtube.com/watch?v=7xBVCi_hIa0
 _Core information about the topic. The foundation._
 
 ### Robert Hastings
-UAP's and Nukes - Robert L. Hastings is the world’s foremost researcher on the subject of UFO activity at nuclear weapons sites.<br>
-https://www.ufohastings.com/<br>
-https://www.amazon.com/UFOs-Nukes-Extraordinary-Encounters-Nuclear/dp/1544822197<br>
-https://www.amazon.com/UFOs-Nukes-Secret-Link-Revealed/dp/B06XWQ2NWX/
+
+[UFOs & Nukes: Extraordinary Encounters at Nuclear Weapons Sites](https://www.amazon.com/UFOs-Nukes-Extraordinary-Encounters-Nuclear/dp/1544822197) by [Robert L. Hastings](https://www.ufohastings.com/), the world’s foremost researcher on the subject of UFO activity at nuclear weapons sites. There is also a documentary produced in 2016 called [UFOs and Nukes: The Secret Link Revealed](https://vimeo.com/ondemand/ufosandnukes).
+
+Hastings hosted [the UFOs-Nukes Connection Press Conference](https://ufohastings.com/articles/the-ufos-nukes-connection-press-conference) on 27th September 2010, and another one in 2021.
+
+He came out as an experiencer in his 2019 book [Confession: Our Hidden Alien Encounters Revealed](https://www.amazon.com/gp/product/1695688856).
 
 ### Paul Hill
 Paul R. Hill (mid–twentieth-century American aerodynamicist, leading research and development engineer and manager for NASA/NACA),
